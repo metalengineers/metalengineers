@@ -2,7 +2,7 @@ Hi!!
 
 My name is Railie! I’m usually in the comics or Cookie Run area on Ponytown, and if not there, I’m running around with my partner ^.^
 
-My main interests right now are Watchmen and Batman! I usually sit around as Rorschach or Silk Spectre, or one of my many Batman skins, which are based on The Long Halloween! It’s my favorite Batman comic!! I also really like Batman: The Animated Series! Also, pls be nice if I get anything wrong, I’m still a bit new to reading comics T_T
+My main interests right now are Watchmen and Batman! I usually sit around as Rorschach or Silk Spectre (my babies), or one of my many Batman skins, which are based on The Long Halloween! It’s my favorite Batman comic!! I also really like Batman: The Animated Series! Also, pls be nice if I get anything wrong, I’m still a bit new to reading comics T_T Also, I really love Scarecrow, specifically Tim Sale’s design from The Long Halloween saga ^.^
 
 Some of my other interests are Mystery Science Theater 3000, Cookie Run (Ovenbreak specifically), V for Vendetta (can you tell I really like Alan Moore), and many other things! I also have a lot of knowledge about industrial, noise, and experimental music!
 
