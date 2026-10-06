@@ -9,6 +9,7 @@ Some of my other interests are Mystery Science Theater 3000, Cookie Run (Ovenbre
 I don’t have a DNI, I try to be friends with everyone, but I do utilize blocking and hiding!! I do however ask you don’t befriend me if you’re TCC or if you’re really annoying about proship/anti discourse stuff. I am against censorship, but I understand how to engage with what I enjoy in both a critical and educated way, and block people who make me uncomfortable!!
 
 That’s basically it! Feel free to interact with me or C+H! I love to chat, but I will warn I’m a bit shy and kind of a dry talker T_T You can also add me on Discord, in which my user is songsofpain, or follow my Tumblr blog, which has the same username as on here! (metalengineers)
+Fun fact! My user is named after the Gary Numan songs Metal and Engineers! :-)
 <!--
 **metalengineers/metalengineers** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
