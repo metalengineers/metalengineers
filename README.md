@@ -13,6 +13,8 @@ Fun fact! My user is named after the Gary Numan songs Metal and Engineers! :-)
 
 ![Spotify recently played](https://spotify-recently-played.jeffreyca.workers.dev/svg?user=6p2fp0acm3offrflsgndyfeqe)
 also, check out my crappy music taste here T_T
+
+![best friends](https://img1.picmix.com/output/pic/normal/6/2/6/3/12833626_b4bf6.gif)
 <!--
 **metalengineers/metalengineers** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
