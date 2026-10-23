@@ -1,20 +1,29 @@
-Hi!!
+<p align="center">
+  <img src="https://64.media.tumblr.com/037e8ecc7cb8949eadb05b68535385b3/62d023f1aad38884-c2/s540x810/2ae29a11a7d5d522ad59c1d16afa9a090a5aa9eb.png"/>
+</p>
+<p align="center">
+  <img max width="300px" max height="300px" src="https://i.pinimg.com/736x/2c/95/49/2c95498568b2e6dad61b0e4f206d6ab7.jpg"/>
+</p>
+<p align="center">My name is Railie! I’m usually in the comics or Cookie Run area on Ponytown, and if not there, I’m running around with my partner ^.^<br>
 
-My name is Railie! I’m usually in the comics or Cookie Run area on Ponytown, and if not there, I’m running around with my partner ^.^
+My main interests right now are Watchmen and Batman! I usually sit around as Rorschach or Silk Spectre (my babies), or one of my many Batman skins, which are usually based on Batman: The Animated Series or The Long Halloween!! I am also still kind of new to reading comics, so I apologize if I get anything wrong! B NICE 2 ME!! ^.^<br>
 
-My main interests right now are Watchmen and Batman! I usually sit around as Rorschach or Silk Spectre (my babies), or one of my many Batman skins, which are based on The Long Halloween! It’s my favorite Batman comic!! I also really like Batman: The Animated Series! Also, pls be nice if I get anything wrong, I’m still a bit new to reading comics T_T Also, I really love Scarecrow, specifically Tim Sale’s design from The Long Halloween saga ^.^
+Some of my other interests are Mystery Science Theater 3000, Cookie Run (Ovenbreak specifically), V for Vendetta (can you tell I really like Alan Moore), Absolute Martian Manhunter, and many other things! I also have a lot of knowledge about industrial, noise, and experimental music!<br>
 
-Some of my other interests are Mystery Science Theater 3000, Cookie Run (Ovenbreak specifically), V for Vendetta (can you tell I really like Alan Moore), Absolute Martian Manhunter, and many other things! I also have a lot of knowledge about industrial, noise, and experimental music!
-
-I don’t have a DNI, I try to be friends with everyone, but I do utilize blocking and hiding!! I do however ask you don’t befriend me if you’re TCC or if you’re really annoying about proship/anti discourse stuff. I am against censorship, but I understand how to engage with what I enjoy in both a critical and educated way, and block people who make me uncomfortable!!
+I don’t have a DNI, I try to be friends with everyone, but I do utilize blocking and hiding!! I do however ask you don’t befriend me if you’re TCC, under 14, or if you’re really annoying about proship/anti discourse stuff. I am against censorship, but I understand how to engage with what I enjoy in both a critical and educated way, and block people who make me uncomfortable!!<br>
 
 That’s basically it! Feel free to interact with me or C+H! I love to chat, but I will warn I’m a bit shy and kind of a dry talker T_T You can also add me on Discord, in which my user is songsofpain, or follow my Tumblr blog, which has the same username as on here! (metalengineers)
-Fun fact! My user is named after the Gary Numan songs Metal and Engineers! :-)
+Fun fact! My user is named after the Gary Numan songs Metal and Engineers! :-)<br>
+<p align="center">
+  <a href="https://www.last.fm/user/junometricals"><img src="https://64.media.tumblr.com/037e8ecc7cb8949eadb05b68535385b3/62d023f1aad38884-c2/s540x810/2ae29a11a7d5d522ad59c1d16afa9a090a5aa9eb.png"/></a>
+</p>
+also, check out my crappy music taste below
+</p>
+<p align="center">
+  <img src="https://lastfm-recently-played.jeffreyca.workers.dev/svg?user=junometricals"/>
+</p>
 
-![Spotify recently played](https://spotify-recently-played.jeffreyca.workers.dev/svg?user=6p2fp0acm3offrflsgndyfeqe)
-also, check out my crappy music taste here T_T
 
-![best friends](https://img1.picmix.com/output/pic/normal/6/2/6/3/12833626_b4bf6.gif)
 <!--
 **metalengineers/metalengineers** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
