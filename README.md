@@ -4,11 +4,11 @@
 <p align="center">
   <img max width="300px" max height="300px" src="https://i.pinimg.com/736x/2c/95/49/2c95498568b2e6dad61b0e4f206d6ab7.jpg"/>
 </p>
-<p align="center">My name is Railie! I’m usually in the comics or Cookie Run area on Ponytown, and if not there, I’m running around with my partner ^.^<br>
+<p align="center">My name is Railie! I’m usually in the comics or Cookie Run area on Ponytown, and if not there, I’m running around with my partner ^.^ (hi fifi if u see dis)<br>
 
-My main interests right now are Watchmen and Batman! I usually sit around as Rorschach or Silk Spectre (my babies), or one of my many Batman skins, which are usually based on Batman: The Animated Series or The Long Halloween!! I am also still kind of new to reading comics, so I apologize if I get anything wrong! B NICE 2 ME!! ^.^<br>
+My main interests right now are Watchmen and Batman! I usually sit around as one of my skins from those comics. I also am very fixated on Batman: The Animated Series!! I am also still kind of new to reading comics, so I apologize if I get anything wrong! B NICE 2 ME!! ^.^ i have a <a href="https://www.goodreads.com/user/show/203285577"goodreads></a> if any of u wanna see what I'm currently reading!!<br>
 
-Some of my other interests are Mystery Science Theater 3000, Cookie Run (Ovenbreak specifically), V for Vendetta (can you tell I really like Alan Moore), Absolute Martian Manhunter, and many other things! I also have a lot of knowledge about industrial, noise, and experimental music!<br>
+Some of my other interests are Mystery Science Theater 3000, Cookie Run (Ovenbreak specifically), V for Vendetta (can you tell I really like Alan Moore), Absolute Martian Manhunter, Spawn, Hellboy, Katamari, Papa Louie (sorry), and many other things! I also have a lot of knowledge about industrial, noise, and experimental music! PLEASE TALKTO ME ABOUT MUSIC OUGHFUJGDFHKJGHSDFKLH0E<br>
 
 I don’t have a DNI, I try to be friends with everyone, but I do utilize blocking and hiding!! I do however ask you don’t befriend me if you’re TCC, under 14, or if you’re really annoying about proship/anti discourse stuff. I am against censorship, but I understand how to engage with what I enjoy in both a critical and educated way, and block people who make me uncomfortable!!<br>
 
