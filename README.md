@@ -4,7 +4,7 @@
 <p align="center">
   <img max width="300px" max height="300px" src="https://i.pinimg.com/736x/2c/95/49/2c95498568b2e6dad61b0e4f206d6ab7.jpg"/>
 </p>
-<p align="center">My name is Railie! I’m usually in the comics or Cookie Run area on Ponytown, and if not there, I’m running around with my partner ^.^ (hi fifi if u see dis)<br>
+<p align="center">My name is Aurelia, or Railie/Crow! I’m usually in the comics or Cookie Run area on Ponytown, and if not there, I’m running around with my partner ^.^ (hi fifi if u see dis)<br>
 
 My main interests right now are Watchmen and Batman! I usually sit around as one of my skins from those comics. I also am very fixated on Batman: The Animated Series!! I am also still kind of new to reading comics, so I apologize if I get anything wrong! B NICE 2 ME!! ^.^ i have a <a href="https://www.goodreads.com/user/show/203285577">goodreads</a> if any of u wanna see what I'm currently reading!!<br>
 
