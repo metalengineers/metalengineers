@@ -6,7 +6,7 @@
 </p>
 <p align="center">My name is Aurelia, or Railie/Crow! I’m usually in the comics or Cookie Run area on Ponytown, and if not there, I’m running around with my partner ^.^ (hi fifi if u see dis)<br>
 
-My main interests right now are Watchmen and Batman! I usually sit around as one of my skins from those comics. I also am very fixated on Batman: The Animated Series!! I am also still kind of new to reading comics, so I apologize if I get anything wrong! B NICE 2 ME!! ^.^ i have a <a href="https://www.goodreads.com/user/show/203285577">goodreads</a> if any of u wanna see what I'm currently reading!!<br>
+My main interests right now are Watchmen and Batman! I usually sit around as one of my skins from those comics. I also am very fixated on Batman: The Animated Series!! I am also still kind of new to reading comics, so I apologize if I get anything wrong! B NICE 2 ME!! ^.^ i have a <a href="https://www.goodreads.com/user/show/203285577">goodreads</a> if any of u wanna see what I'm currently reading!! i also have a <a href="https://letterboxd.com/myriapodrogyne/">letterbox</a> if you wanna see what movies i like!<br>
 
 Some of my other interests are Mystery Science Theater 3000, Cookie Run (Ovenbreak specifically), V for Vendetta (can you tell I really like Alan Moore), Absolute Martian Manhunter, Spawn, Hellboy, Katamari, Papa Louie (sorry), and many other things! I also have a lot of knowledge about industrial, noise, and experimental music! PLEASE TALKTO ME ABOUT MUSIC OUGHFUJGDFHKJGHSDFKLH0E<br>
 
