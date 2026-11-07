@@ -21,6 +21,8 @@ also, check out my crappy music taste below
 </p>
 <p align="center">
   <img src="https://lastfm-recently-played.jeffreyca.workers.dev/svg?user=junometricals"/>
+
+  anyways please go read v for vendetta
 </p>
 
 
