@@ -10,7 +10,7 @@ My main interests right now are Watchmen and Batman! I usually sit around as one
 
 Some of my other interests are Mystery Science Theater 3000, Cookie Run (Ovenbreak specifically), V for Vendetta (can you tell I really like Alan Moore), Absolute Martian Manhunter, Spawn, Hellboy, Katamari, Papa Louie (sorry), and many other things! I also have a lot of knowledge about industrial, noise, and experimental music! PLEASE TALKTO ME ABOUT MUSIC OUGHFUJGDFHKJGHSDFKLH0E<br>
 
-I don’t have a DNI, I try to be friends with everyone, but I do utilize blocking and hiding!! I do however ask you don’t befriend me if you’re TCC, under 14, or if you’re really annoying about proship/anti discourse stuff. I am against censorship, but I understand how to engage with what I enjoy in both a critical and educated way, and block people who make me uncomfortable!!<br>
+I don’t have a DNI, I try to be friends with everyone, but I do utilize blocking and hiding!! I do however ask you don’t befriend me if you’re TCC, under 14, or if you’re really annoying about proship/anti discourse stuff. I am against censorship, but I understand how to engage with what I enjoy in both a critical and educated way, and block people who make me uncomfortable!! also pls don’t add me if you just annoy people for no reason on ponytown!! I don’t wanna fight anyone or see that stuff!!<br>
 
 That’s basically it! Feel free to interact with me or C+H! I love to chat, but I will warn I’m a bit shy and kind of a dry talker T_T You can also add me on Discord, in which my user is songsofpain, or follow my Tumblr blog, which has the same username as on here! (metalengineers)
 Fun fact! My user is named after the Gary Numan songs Metal and Engineers! :-)<br>
